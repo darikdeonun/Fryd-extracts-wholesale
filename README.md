@@ -1,1 +1,2 @@
-# Fryd-extracts-wholesale
+# Fryd Extracts Wholesale
+Vanilla extract is probably the most common aromatic intensifier in American dessert, whether it plays a starring or a supportive role—consider its presence in a batch of vanilla ice cream versus chocolate chip [Fryd extracts wholesale](https://officialsfrydextract.com/product-category/fryd-wholesale/). THE BOTTOM LINE: Essential oils are pure and highly concentrated. Extracts are diluted, though still highly-beneficial. Flavouring. A natural flavouring is made from various extracts or natural substances, which when mixed in a particular formula give the required taste. A flavouring is typically stronger than an Extract.
